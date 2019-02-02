@@ -5,5 +5,5 @@ https://drive.google.com/folderview?id=1XOVyJjHdWEf_MW3D7nt3yURfxiBi88LO
 
 For my consultation time and other info, please try the below link
 
-https://drive.google.com/a/g.bracu.ac.bd/file/d/1IYDIrso2QbhGeDFOO4rdPS3PWhGLCaJ3/view?usp=drivesdk
+https://drive.google.com/open?id=0B5iqDEmE8J2ndlVXVWRZSU1GVlVNUFhOSHBubC1FeFJQdkNj
 
